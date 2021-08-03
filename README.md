@@ -1,1 +1,1 @@
-# Tecno2
+Tecnología Multimedia 2
